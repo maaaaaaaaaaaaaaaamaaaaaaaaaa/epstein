@@ -1,2 +1,2 @@
-# epstein
-Julian do it
+# Julian
+LEES EN CHAT IN DE FUCKING DISCORD HOLY SHIT
